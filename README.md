@@ -10,4 +10,4 @@
 
 
 Explore my work! [simrinramchandani.com](https://simrinramchandani.com)  
-Let’s connect: [LinkedIn](https://www.linkedin.com/in/simrinramchandani/)
+Let’s connect: [LinkedIn](https://www.linkedin.com/in/simrinramchandani/) | simrinramchandani05@gmail.com
