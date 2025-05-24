@@ -10,5 +10,5 @@
 
 
 Explore my work! [simrinramchandani.com](https://simrinramchandani.com)  
-Let’s connect: [LinkedIn](https://linkedin.com/in/simrinramchandani) | [simrinramchandani05@gmail.com](mailto:simrinramchandani05@gmail.com)
+Let’s connect: [LinkedIn](https://www.linkedin.com/in/simrin-ramchandani/) | [simrinramchandani05@gmail.com](mailto:simrinramchandani05@gmail.com)
 
